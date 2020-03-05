@@ -6,3 +6,12 @@ First poem
 "The world of dew—
 A world of dew it is indeed,
 And yet, and yet . . ."
+
+“Lighting One Candle” by Yosa Buson
+
+The light of a candle
+
+Is transferred to another candle—
+
+Spring twilight
+
